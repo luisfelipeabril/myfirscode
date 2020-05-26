@@ -1,2 +1,0 @@
-# myfirscode
-32veceshelloholberton
